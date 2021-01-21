@@ -1,1 +1,1 @@
-# freegenerator4u.me
+# freegenerator4u
